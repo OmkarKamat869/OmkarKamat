@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @king674
+- 👋 Hi, I’m @OmkarKamat869
 - 👀 I’m interested in ... hacking
 - 🌱 I’m currently learning ...
 - 📫 How to reach me ...omkarkamat869@gmail.com
